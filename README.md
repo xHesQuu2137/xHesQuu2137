@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @xHesQuu2137
 - 👀 I’m interested in w@tching p0rno
 - A tak serio to programuje w pythonie moze pozniej bede w c++ ale jak narazie zostaje w pythonie :)
-- Kontak: xHesQuuu#0722
+- Kontakt: xHesQuuu#0722
